@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **vibhubalan123@gmail.com**
 
-- ⚡ Fun fact **I am him**
+- ⚡ Fun fact **I am interested in crocodiles**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
