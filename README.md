@@ -2,9 +2,9 @@
 <h3 align="center">Learning.</h3>
 
 
-- 📫 How to reach me **postbox493@gmail.com**
+- 📫 How to reach me **vibhubalan123@gmail.com**
 
-- ⚡ Fun fact **i am finished**
+- ⚡ Fun fact **I am him**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
